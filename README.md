@@ -76,5 +76,5 @@ Recommendations for User 1 in Comedy:
 
 📬 **Contact**  
 📧 yassminesaad75@gmail.com 
-🔗 [LinkedIn – Yasmine Saad](https://www.linkedin.com/in/yasmine-saad)  
+🔗 [LinkedIn – Yasmine Saad](https://www.linkedin.com/in/yasmine-saad-397749278/)  
 
